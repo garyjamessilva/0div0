@@ -1,11 +1,12 @@
 # 0div0
 adventures in 0 / 0
-could be 0/0
+could be 0/0 
 specifically is
 0/0 = NAN
 0/0 = ∞ ?
 0/0 = -∞ ?
-that kind of thing as well as cousins
+that kind of thing as well as cousins 
+sqrt -1 = ∞ ?
 while(1);
 
 4 example ~
