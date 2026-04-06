@@ -15,6 +15,8 @@ on https://www.youtube.com/watch?v=haAyaSxJDLU to this, use it to display the pi
 
 just put it on loop full screen in youtube done.
 
+(for maxium effect set it up to run twice simultaneously between two or more tv's etc start them out phase for best mirror echos etc )
+
 u r welcome notice how the author deliberately hacks him self on purpose to achieve his point
 
 see it all b4 itz taken down ..
