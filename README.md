@@ -9,7 +9,17 @@ that kind of thing as well as cousins
 sqrt -1 = ∞ ?
 while(1);
 
-4 example ~
+look if you just want to see the whole self referential self hosted video of the book as the performance art just click
+
+on https://www.youtube.com/watch?v=haAyaSxJDLU to this, use it to display the piece standalone even on a billboard art installation tv etc
+
+just put it on loop in youtube done.
+
+u r welcome notice how the author deliberately hacks him self on purpose to achieve his point
+
+see it all b4 itz taken down ..
+
+r 4 example ~
 
 # Online Python - IDE, Editor, Compiler, Interpreter
 
