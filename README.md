@@ -13,7 +13,7 @@ look if you just want to see the whole self referential self hosted video of the
 
 on https://www.youtube.com/watch?v=haAyaSxJDLU to this, use it to display the piece standalone even on a billboard art installation tv etc
 
-just put it on loop in youtube done.
+just put it on loop full screen in youtube done.
 
 u r welcome notice how the author deliberately hacks him self on purpose to achieve his point
 
